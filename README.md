@@ -5,16 +5,16 @@ From Disney Star to Pop Music Sensation... One and only Sabrina Carpenter. Her a
 <img height="500" src="https://preview.redd.it/sabrina-carpenter-short-n-sweet-6th-album-out-on-august-23-v0-byf6nbop1e4d1.jpeg?width=1080&crop=smart&auto=webp&s=622d5ce99af91c8010d2773694315e4a61ac9fc8" />
 <br>
 
-<header> Upcoming LA Date's </header>
-<h1>Sunday, November 16, 2025, at Crypto.con Arena</h1>
+<h1> Upcoming LA Date's </h1>
+<h4>Sunday, November 16, 2025, at Crypto.con Arena</h4>
 <p> blah blah blah </p>
-<h2>Monday, November 17, 2025, at Crypto.con Arena</h2>
+<h4>Monday, November 17, 2025, at Crypto.con Arena</h4>
 <p>Blah Blah Blah</p>
-<h3>Wednesday, November 19, 2025, at Crypto.con Arena</h3>
+<h4>Wednesday, November 19, 2025, at Crypto.con Arena</h4>
 <p>Blah Blah Blah</p>
 <h4>Thursday, November 20, 2025, at Crypto.con Arena</h4>
 <p>Blah Blah Blah</p>
-<h5>Satday, November 22, 2025, at Crypto.con Arena</h5>
+<h4>Satday, November 22, 2025, at Crypto.con Arena</h4>
 <p>Blah Blah Blah</p>
-<h6>Sunday, November 23, 2025, at Crypto.con Arena</h6>
+<h4>Sunday, November 23, 2025, at Crypto.con Arena</h4>
 <p>Blah Blah Blah</p>
