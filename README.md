@@ -5,9 +5,9 @@ From Disney Star to Pop Music Sensation... One and only Sabrina Carpenter. Her a
 <img height="500" src="https://preview.redd.it/sabrina-carpenter-short-n-sweet-6th-album-out-on-august-23-v0-byf6nbop1e4d1.jpeg?width=1080&crop=smart&auto=webp&s=622d5ce99af91c8010d2773694315e4a61ac9fc8" />
 <br>
 
-<h1> WHat to Know About Upcoming LA Date's </h1>
+<h1> What to Know About Upcoming LA Date's </h1>
 <h4>Sunday, November 16, 2025, at Crypto.con Arena</h4>
-<p> It is for all age, doors open at 5:30 p.m. PST, and the show starts at 7:00 p.m. PST. Tickets are SOLD OUT! Parking is available for purchase online through tix.axs.com from $50 for Lot W and $25 for Lot C as of September 2025. </p>
+<p> It is for all age, doors open at 5:30 p.m. PST, and the show starts at 7:00 p.m. PST. Tickets are SOLD OUT! Parking is available for purchase online through tix.axs.com from $50 for Lot W and $25 for Lot C as of September 2025. Expect to see Ravyn Lenae and Amber Mark. So mark your calendars if you scored tickets for Sunday night's concert. </p>
 <h4>Monday, November 17, 2025, at Crypto.con Arena</h4>
 <p>Blah Blah Blah</p>
 <h4>Wednesday, November 19, 2025, at Crypto.con Arena</h4>
