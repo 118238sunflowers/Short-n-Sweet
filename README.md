@@ -6,7 +6,7 @@ From Disney Star to Pop Music Sensation... One and only Sabrina Carpenter. Her a
 <br>
 <h1> What to Know About Upcoming LA Date's </h1>
 <h4>Sunday, November 16, 2025, at Crypto.com Arena</h4>
-<p> It is for all ages, doors open at 5:30 p.m. PST, and the show starts at 7:00 p.m. PST. Tickets are SOLD OUT! Parking is available for purchase online through tix.axs.com from $50 for Lot W and $25 for Lot C as of September 2025. Expect to see Ravyn Lenae and Amber Mark. You can see more information at <a href> https://store.sabrinacarpenter.com/pages/tour <a href>. <p> So mark your calendars if you scored tickets for Sunday night's concert! </p>
+<p> It is for all ages, doors open at 5:30 p.m. PST, and the show starts at 7:00 p.m. PST. Tickets are SOLD OUT! Parking is available for purchase online through tix.axs.com from $50 for Lot W and $25 for Lot C as of September 2025. Expect to see Ravyn Lenae and Amber Mark. You can see more information at https://store.sabrinacarpenter.com/pages/tour. So mark your calendars if you scored tickets for Sunday night's concert! </p>
 <h4>Monday, November 17, 2025, at Crypto.com Arena</h4>
 <p> It is for all ages, doors open at 5:30 p.m. PST, and the show starts at 7:00 p.m. PST. Tickets are SOLD OUT! Parking is available for purchase online through tix.axs.com from $50 for Lot W and $25 for Lot C as of September 2025. Expect to see Ravyn Lenae and Amber Mark. So mark your calendars if you scored tickets for Monday night's concert! </p>
 <h4>Wednesday, November 19, 2025, at Crypto.com Arena</h4>
